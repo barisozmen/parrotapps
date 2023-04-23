@@ -1,6 +1,6 @@
 ## Support
 
-Welcome to the support page for ChatGPT Free Unlimited App. If you're having trouble with the app, please review the frequently asked questions below, or contact our support team using the information provided at the bottom of this page.
+Welcome to the support page for Zordon AI App. If you're having trouble with the app, please review the frequently asked questions below, or contact our support team using the information provided at the bottom of this page.
 
 ### Frequently Asked Questions:
 
